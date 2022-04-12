@@ -8,7 +8,7 @@
 - 승팡(김승래) @Seungpang
 - 칙촉(안영윤) @Youngyoon-1 
 - 범고래(조충범) @cndqjacndqja
-- 정(정진우) @bugoverdoes
+- 정(정진우) @bugoverdose
 - 조시(조현근) @hyunrrr
 - 토닉(최우석) @tonic523
 - 헌치(박지우) @BETTERFUTURE4 
